@@ -7,10 +7,3 @@ will make this soon . . .  maybe not who knows
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31v24qeespko6atq6jwsmdp3df6i&cover_image=true&theme=novatorem&show_offline=true&background_color=a39ab8&interchange=true&bar_color=9a85b8&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31v24qeespko6atq6jwsmdp3df6i&redirect=true)
 
 ---
-
-my comfort youtuber, if u even care ;3
-
-https://github.com/user-attachments/assets/492330a0-0408-4af7-90f8-aa2b32510887
-
-
-</div>
